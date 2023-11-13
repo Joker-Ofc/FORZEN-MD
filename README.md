@@ -12,13 +12,8 @@
     
 ## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨:+𝑭𝑶𝑹𝒁𝑬𝑵+𝑴𝑫+𝑩𝑶𝑻;ᴏᴡɴᴇʀ+ʙʏ+ʏᴀsɪʏᴀ+ᴏғғɪᴄɪᴀʟ;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+ʏᴀsɪʏᴀ+ᴀɴᴅ+ɪɴᴅᴜᴡᴀʀᴀ;ᴘᴏᴡᴇʀᴅ+ʙʏ:+ᴄʏʙᴇʀ+ᴡᴀʀʀɪᴏʀs+x+ᴛᴇᴀᴍ)](https://git.io/typing-svg)
 
-
-![forks](https://img.shields.io/github/forks/yasiyaofc1/FORZEN-MD?label=Forks&style=social)
-
-![stars](https://img.shields.io/github/stars/yasiyaofc1/FORZEN-MD?style=social)
-
 ----------
-<a aria-label="Join our chats" href="https://chat.whatsapp.com/L2i6oDCjljt4mtBTUvTh7t" target="_blank">
+<a aria-label="Join our chats" href="https://chat.whatsapp.com/HGznHWXAxmv5uqNUxooblD" target="_blank">
     <img alt="whatsapp" src="https://img.shields.io/badge/Join Supporter Group-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
   </a>
   
@@ -34,7 +29,7 @@
 
 ●. ***Get a Mongodb uri from [railway.app](https://railway.app).***
 
-●.  ***Click [FORK](https://github.com/yasiyaofc1/FORZEN-MD/fork)***
+●.  ***Click [FORK](https://github.com/Joker-Ofc/FORZEN-MD/fork)***
 
 ## ```SCAN QR CODE```
 [![SCAN QR](https://repl.it/badge/github/quiec/whatsasena)](https://replit.com/@yasithasamujit2/FORZEN-MD)
@@ -60,13 +55,13 @@
 ㅤ
  ㅤ
  ---
-⚜️|**[`MR INDUVARA`]**|
+⚜️|**[`JOKER OFC`]**|
 
  <p align="center">  
  <a href="[https://telegra.ph/file/f477e530b93d866c664b1.jpg](https://telegra.ph/file/903e16f9effd8de11cc76.jpg)">
     <img alt="FORZEN MD OWNER" height="80" src="https://telegra.ph/file/903e16f9effd8de11cc76.jpg">
  
-**[» Contact For](https://wa.me/+)**
+**[» Contact For](https://wa.me/+447537187021)**
 ㅤ
 ㅤㅤㅤ
 ---
